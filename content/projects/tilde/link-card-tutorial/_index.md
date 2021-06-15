@@ -44,6 +44,6 @@ Whenever you attach a link to a card, you need to make sure that whoever is revi
 
 The other common problem is people deleting their work. Once we have reviewed your work it is super duper important that you don't change the privacy settings or delete it. We do interact with external assessors (that is why we are accredited!) so if we say a student is competent in something and we can't prove it then that's bad. In these cases we would expect you to redo the work.
 
-**So seriosly, dont delete stuff that you have submitted!**
+**So seriously, dont delete stuff that you have submitted!**
 
 (Except maybe this perfectly useless doc. If you want. Because it actually is useless)
